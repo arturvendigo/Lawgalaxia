@@ -1,0 +1,2 @@
+# Lawgalaxia
+Закон сервера galaxia
